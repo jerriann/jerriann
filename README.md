@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @jerriann
+- 👀 I’m interested in writing, photography, technology, and nature
+- 🌱 I’m currently learning more about product roadmap documentation
+- 💞️ I’m looking to collaborate on fun projects
